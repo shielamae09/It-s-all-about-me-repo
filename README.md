@@ -3,7 +3,7 @@ I want to learn more.
 I need to graduate.
 Fighting Shiela You can do it!
 Don't Give Up Bitch!
-Just Observe,Listen,Be creative
+Just Observe,Explore HAHAHA,Listen,Be creative
 WAG KANG MAGING TAMAD GURL
 IF BOBO KA CGE BOBO NALANG HAHAHA
 I WILL DO MY FUCKING BEST HAHAHA BAD
